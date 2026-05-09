@@ -1,4 +1,4 @@
-
+CorelDRAW for macOS secure Plugin: version history & batch processing is the best CorelDRAW for macOS plugin, featuring version history and batch processing. Safe, efficient, and
 
 
 
